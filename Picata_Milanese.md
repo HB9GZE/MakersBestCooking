@@ -18,11 +18,12 @@ Author: Claudio
 | ca. 150g Parmesan | Fein geriebenen Parmesan unter die Eimasse rühren. Es sollte ein dickflüssiger Brei entstehen. Wenn der Brei zu flüssig ist, mehr Parmesan unterrühren. Zu dicker Brei kann mit ein wenig Rahm oder Milch leicht verdünnt werden. |
 | | |
 | | **Schritt 2 — Fleisch würzen und mehlen** |
-| Kalbfleisch, Salz, Pfeffer | Dünn geschnittenes (ca. 3-5mm) Kalbfleisch trocken tupfen und würzen. Alternativ kann auch Poulet oder Schweinefleisch verwendet werden. |
+| ca. 450g Kalbfleisch | Dünn geschnittenes (ca. 3-5mm) Kalbfleisch trocken tupfen. und würzen. Alternativ kann auch Poulet oder Schweinefleisch verwendet werden. |
+| Salz und Pfeffer | Das Fleisch mit Salz und Pfeffer würzen. |
 | etwas Mehl | Gewürztes Fleisch in Mehl wenden. |
 | | |
-| | **Schritt 3 — Picata Braten** |
-| Butter oder Bratbutter | Reichlich Butter in der Bratpfanne auf mittlere Hitze bringen. Fleisch im Ei-Kase-Brei wenden (voll bedeckt) und in die heisse Pfanne geben. Auf der ersten Seite ca. 3-4 Minuten braten, bis die Panierung goldbraun und Knusprig ist. Wenden und zweite Seite fertig braten. Nur wenn der Ei-Käse-Brei dick genug war, und genut Butter in der Pfanne ist, wird die Kruste schön Knusprig. |
+| | **Schritt 3 — Braten** |
+| Butter oder Bratbutter | Reichlich Butter in der Bratpfanne auf mittlere Hitze bringen. Fleisch im Ei-Kase-Brei wenden (voll bedeckt) und in die heisse Pfanne geben. Auf der ersten Seite ca. 3-4 Minuten braten, bis die Panierung goldbraun und Knusprig ist. Wenden und zweite Seite fertig braten. Nur wenn der Ei-Käse-Brei dick genug war und genug Butter in der Pfanne ist, wird die Kruste schön Knusprig. |
 
 ---
 
