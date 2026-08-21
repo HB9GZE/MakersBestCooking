@@ -16,7 +16,7 @@ Author: Claudio
 | Zutaten | Zubereitung |
 |:---|:---|
 | | **Schritt 1 — Panierung vorbereiten** |
-| 3 Eier | Eier Gut vermischen. |
+| 4 Eier | Eier Gut vermischen. |
 | ca. 120g Parmesan | Fein geriebenen Parmesan unter die Eimasse rühren. Es sollte ein dickflüssiger Brei entstehen. Wenn der Brei zu flüssig ist, mehr Parmesan unterrühren. Zu dicker Brei kann mit ein wenig Rahm oder Milch leicht verdünnt werden. |
 | | |
 | | **Schritt 2 — Fleisch würzen und mehlen** |
