@@ -7,6 +7,8 @@
 | **Vorbereitungszeit** | 15 Min. |
 | **Kochzeit** | 30 Min. |
 
+![Titelbild](GitHub URL des hochgeladenen Bildes)
+
 ---
 
 ## Zutaten & Zubereitung

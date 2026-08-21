@@ -7,6 +7,8 @@
 | **Prep time** | 15 min |
 | **Cook time** | 30 min |
 
+![Titelbild](GitHub URL of the uploaded Image)
+
 ---
 
 ## Ingredients & Steps
